@@ -1,0 +1,1 @@
+The Nine Realm's first firearm was engineered by [[Kovir]] the Giant, and commissioned by [[Rexton Redbrand]]. It was designed to specifically hunt and destroy Giants, taking advantage of the way they fought and their weaknesses. It was stolen by Cokt on the night of the revolt and imbued

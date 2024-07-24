@@ -1,6 +1,10 @@
 ---
-title: Welcome to Quartz
+title: Cokt
 ---
 
-This is a blank Quartz installation.
-See the [documentation](https://quartz.jzhao.xyz) for how to get started.
+Cokt is a goblin with a gun. -> That's pretty much it.
+
+Table of Contents:
+- [[Early Life]]
+- [[Life on the Estate]]
+- [[Revolt]]

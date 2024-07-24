@@ -1,0 +1,23 @@
+[[Krilrym]] knew that something must be done about the impending doom of his race, so he brought all of the slaves together to formulate a plan. After many nights of late discussion, the Giants and Cokt were prepared to secure their future. 
+
+One night, after [[Kovir]] had gone to bed, Cokt got out of his cot and snuck to Kovir's safe, where the nearly completed [[Firearm]] was kept. Cokt had carefully watched Kovir opened the safe in the prior days, so he was able to get it open. He had snuck through the estate many times before, so this was nothing new to him. Unfortunately, he did not count on a surprise visit. Unbeknownst to Cokt, the Dragon Cult were dropping by unannounced to pick up the weapon. They loudly knocked on the door as he was approaching it with the gun, and not one second later, the door was beaten down. The cultists rushed in as Kovir appeared at the top of the stairs. Before any confrontation could happen, the robed figures saw Cokt running off with the firearm and gave suit. 
+
+Cokt let out a cry, and crashing through the nearby windows were many Giants, who were holed up outside the mansion, waiting for a signal if necessary. They were only able to get in the way before bolts of arcane energy struck them from the cultists. Kovir jumped from the top of the staircase and joined the cultists in the fray as more Giants poured in through the window. Cokt jumped to the outside, finding a group of Giants storming the door behind the cultists. One of these Giants was [[Locht]], who quickly threw Cokt up onto his back and sprinted to their quarters where Krilrym was waiting. 
+
+As Locht was running, the shackles around his wrists began to glow as chains sprouted from the ground and held him by his hands and feet. Cokt was thrown from Locht's shoulders, firearm still in hand. "Locht, tsk tsk," Kovir spat with sarcasm, "I never took you to be a traitor. It's a shame I can't have another one of your meals." Faster than anyone expected, the Giant slammed a glowing crystal into the cook's chest as he erupted into flames. Locht was nothing but a smoldering pile.
+
+"Little One, how about we step back into the workshop". A line of Giant and cultist bodies strewn about behind him, leading back to the door. "We have so much more work to do."
+
+Cokt looked his master in the eyes, hoisted his weapon, and pointed it towards him. Latent memories came back to Cokt, words that he never knew he understood. "You have kept me here long enough," Cokt spoke in Goblin, a language he did not remember hearing. "It's time I send you to where you belong." Cokt yanked on the trigger, trying to balance the gun that was just a bit too large for his short stature, and a blast of metal flew out of the barrel, slamming into Kovir and knocking him down. Cokt ran from his master with tears in his eyes and into the quarters.
+
+He found Krilrym inside, standing over a large circle in the floor. Surrounding the circle were various symbols that Cokt had never seen before. The Giant had a rock in his hand, and he was carving something into it while humming a tune that could only be described as ancient. "I'm glad to see you've made it," he said in Giant. "No time to waste, hand me the weapon."
+
+Cokt walked over to him and held it to him. The Giant took the stone, kissed it, muttered something in Dwarf, and crushed it in his hand. He threw the dust onto the firearm, sprinkling some onto Cokt's head, too. "Where are we going?" Cokt asked in Giant.
+
+"I'm afraid I cannot join you," Krilrym said with a sigh. "You must go on without me, but I've left a piece of me with you." Cokt stared at him blankly but Krilrym dryly laughed. "You'll understand soon enough."
+
+He led Cokt to the center of the circle and got down on one knee. He pat Cokt on the head and said, "It's time for you to go now, but do not forget what you have seen here. Those robed figures," he gestured towards the mansion, "must get what they deserve. It is of utmost importance that you investigate their dealings and do away with them." 
+
+Cokt nodded and sniffled, clenching the firearm now covered in dust. "Will I see you again?" he asked.
+
+"Time will tell, time will tell." Krilrym sighed and paused for a moment. "It's time for my swan song," he whispered in Dwarven. He stepped out of the circle and began to sing a melody that Cokt would go on to describe as hopeful. The symbols and runes on the floor began to glow, as a ring of purple light started to close in on the Goblin. He watched his close friend in awe as the entire world began to glow, while slowly fading to black. Cokt's mind drifted away as he thought about [[The Future]].
