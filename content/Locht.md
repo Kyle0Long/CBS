@@ -1,0 +1,1 @@
+Locht was the Giant cook on [[Kovir]]'s estate. He stayed with the other Giants and prepared their meals after long days of work. Locht would often send Cokt into the kitchen looking for specific ingredients or recipes to add to his repertoire. He eventually perished on the night of the [[Revolt]] at the hands of Kovir while trying to protect Cokt and the [[Firearm]].
